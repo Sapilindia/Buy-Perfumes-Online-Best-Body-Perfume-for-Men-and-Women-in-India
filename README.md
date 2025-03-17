@@ -6,7 +6,7 @@ If you’re looking to buy perfumes online, Sapil offers an exciting range of me
 
 **Why Choose Sapil Perfumes?**
 🌟 **1. Long-Lasting Fragrances**
-One of the biggest concerns when buying perfumes is their longevity. [Sapil perfumes] [https://in.sapil.com/]are crafted with high-quality ingredients that ensure a long-lasting scent, keeping you refreshed throughout the day.
+One of the biggest concerns when buying perfumes is their longevity. [Sapil perfume](https://in.sapil.com/) are crafted with high-quality ingredients that ensure a long-lasting scent, keeping you refreshed throughout the day.
 
 **🌟 2. Affordable Yet Premium**
 Unlike luxury brands that come with a hefty price tag, Sapil offers affordable perfumes without compromising on quality. You get premium fragrances at a fraction of the cost.
